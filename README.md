@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎨 Passionate Graphic Web Designer with 7 years of experience transforming concepts into visually stunning and user-friendly digital experiences. 🖥️
+🎨 Passionate Graphic Web Designer with 8.5 years of experience transforming concepts into visually stunning and user-friendly digital experiences. 🖥️
 
 With a keen eye for aesthetics and a strong foundation in web design principles, I specialize in creating captivating visuals that resonate with audiences across various platforms. Whether it's designing sleek interfaces, crafting compelling branding materials, or optimizing user experiences, I thrive on bringing creativity and innovation to every project.
 
